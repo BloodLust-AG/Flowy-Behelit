@@ -20,10 +20,13 @@ Hope to finish the game soon for my itch.io
 !!!!! I dont own all artworks shown here, the link to the original owners of the ones which I dont own are below, I had to create some Pixel art myself like Texts and Pipes and Edited the Skull knight's Skull to fit the game !!!!!
 
 https://benedique.itch.io/berserk-pixel-sprites
+
 the Behelit Sprite animation and Skull Knight's Skull
+
 https://tofupixel.tumblr.com/post/641078139675721728/submerged-my-links
+
 the background
 
-I will change the background in the final piece. peace.
+I will change the background in the final piece as i dont know if the image is available for usage. peace.
 
 :)
